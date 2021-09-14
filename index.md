@@ -12,3 +12,9 @@ als amtliche Namen genannt.
 * Mutter: Serafina Julier; betrieb ein Milchgeschäft
 * Wuchs in Wien-Margareten auf
 * Gedenktafel am Hotel Ananas
+
+Zitat Hans Moser:
+> Die Menschen verlieren zuerst 
+> ihre Illusionen, dann ihre Zähne
+> und ganz zuletzt ihre Laster.
+
